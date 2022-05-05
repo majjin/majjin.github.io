@@ -1,0 +1,1 @@
+# majjin.github.io
